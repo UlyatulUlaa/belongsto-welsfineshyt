@@ -241,8 +241,7 @@ Semoga skripsi yang kamu kerjain berjalan lancar dan dapet hasil yang memuaskaaa
 
 Mungkin aku gak pandai berkata-kata, but I really mean it when I say that you are one of the best buddy I've ever have.
 
-Terima kasih sudah lahir dan menemani hari gila bersamaku sampai tahun ini (and I hope this
- will be forever).
+Terima kasih sudah lahir dan menemani hari gila bersamaku sampai tahun ini (and I hope this will be forever).
 
 I love you so much! 💕
 
